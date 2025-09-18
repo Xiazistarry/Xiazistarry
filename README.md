@@ -1,9 +1,9 @@
 - 👋 Hi, I’m Fanning Xia @Xiazistarry
-- I'm currently a 4th year PhD student @StowersInstitute
+- I'm currently a 5th year PhD student @StowersInstitute
 - 📫 Feel free to email me if you have any questions!
-  email: fxia@stowers.edu (school)
+  Email: fxia@stowers.edu (school)
          fn.xia2016@gmail.com (personal)
-  twitter: @Xiazi_starry;
+  LinkedIn [here](https://www.linkedin.com/in/fanning-xia-b65433214/)
   
 
 
