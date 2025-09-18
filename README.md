@@ -3,7 +3,9 @@
 - 📫 Feel free to email me if you have any questions!
   Email: fxia@stowers.edu (school)
          fn.xia2016@gmail.com (personal)
-  LinkedIn [here](https://www.linkedin.com/in/fanning-xia-b65433214/)
+
+
+LinkedIn [here](https://www.linkedin.com/in/fanning-xia-b65433214/)
   
 
 
